@@ -1,7 +1,1 @@
-supaya ada "3 gk bilang ss lama coba liat tanggal waktu taun dan hari 
-
-
-#no date no hoax :)
-
-
-#Dinda+Cantique :*
+anda tau m 3m   ---3k?
